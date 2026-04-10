@@ -6,7 +6,7 @@ for diamond-bladed moments. Shaping religions and nations.
 The iron will in the background of a Zen monk’s starving mind.  
 St. John of the Cross traversing the howls of emptiness and ossified behavioral conditioning with a point of light as his stubborn guide,  
 so near yet so far, silent and alive through rafters coated in ectoplasm,  
-an inadvertent truth in the awful old saying, “toughen up,” if only anyone bother to explain *how*.
+an inadvertent truth in the awful old saying, “toughen up,” if only anyone bothered to explain *how*.
 
 (Think of a relevant quote)
 
