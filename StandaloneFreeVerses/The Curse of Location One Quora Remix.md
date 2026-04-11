@@ -23,7 +23,7 @@ He left to become the CEO of an oil company in faraway lands,
 and now Beelzebub’s accusatory laughter echoes over her pride.  
 The cyclone of her father’s creation has found a new home.
 
-> *‘But the Pharisees said,’ “He casts out demons by the prince of demons.”’* – **Matthew the Apostle of Jesus{2}**
+> *‘But the Pharisees said,’ “He \[Jesus\] casts out demons by the prince of demons.”’* – **Matthew the Apostle{2}**
 
 Evil spirits and good spirits appear in the Dark Light of Location 4.  
 In the whispering whirlwinds may God's Dark Light of Layer 4 liberate the bouquets of false shadows chewing on our skulls. What is the number of evil and bloodthirsty actions committed by men to flee the  
@@ -38,6 +38,10 @@ to free the grayness embedded in cities from the meteor showers of innocence and
 > *“Such a lovely day on the seaside. Sunshine, light breeze, and sounds of the sea, seagulls, and distant traffic. It's delicious to sit on a bench in the sunshine and just be. This moment is complete. Nowhere to rush to. Nothing to plan. There is peace and a sense of deep joy, of being alive. The heart is wide open, streaming love.”* – **Ilona Ciunate{3}**
 
 ***
+
+Even though the Lord has gifted me with Geschwind syndrome,  
+still I hurl walls of venom at humans and bots online,  
+for I am attached to the delusions of my ego.
 
 ## Attributions
 {1}: *The Larger Sutra on Amitāyus* included in *The Three Pure Land Sutras*. Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003.  
