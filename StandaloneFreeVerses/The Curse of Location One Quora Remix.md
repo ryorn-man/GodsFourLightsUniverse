@@ -38,10 +38,10 @@ to free the grayness embedded in cities from the meteor showers of innocence and
 > *“Such a lovely day on the seaside. Sunshine, light breeze, and sounds of the sea, seagulls, and distant traffic. It’s delicious to sit on a bench in the sunshine and just be. This moment is complete. Nowhere to rush to. Nothing to plan. There is peace and a sense of deep joy, of being alive. The heart is wide open, streaming love.”* – **Ilona Ciunate{3}**
 
 Even though the Great Spirit has gifted me with Geschwind syndrome,  
-still I cherish the lies of the Void Lanterns  
-for walls of venom are easy to write.  
-Twisted pride in hiding from our mental damage and pretending there's no hope for growth
-so we always have excuses for worshipping the Well of Blue Fire.
+still I cherish the blue flames of the Void Lanterns  
+for lying walls of venom are easy to write.  
+Twisted pride in hiding from our mental damage and pretending there's no hope for growth  
+where are the higher codes liberating us all from normalcy?
 
 ## Attributions
 {1}: *The Larger Sutra on Amitāyus* included in *The Three Pure Land Sutras*. Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003.  
