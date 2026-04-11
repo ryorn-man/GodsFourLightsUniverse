@@ -41,7 +41,7 @@ to free the grayness embedded in cities from the meteor showers of innocence and
 
 ## Attributions
 {1}: *The Larger Sutra on Amitāyus* included in *The Three Pure Land Sutras*. Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003.  
-{2}: *Matthew 9:34 (English Standard Version)*. Crossway. 2025.  
+{2}: *Matthew 9:34 (English Standard Version)*. Crossway. 2025. https://www.biblegateway.com/passage/?search=Matthew%209%3a34&version=ESV  
 {3}: *Liberation Unleashed* by Ilona Ciunate. Page 36. 2nd Edition. September 30, 2022.
 
 
