@@ -42,8 +42,8 @@ Sacred fire and ice uniting above the gnashing jaws of the addiction to chaos an
 Even though the Great Spirit has gifted me with Geschwind syndrome,  
 still I cherish the blue flames of the Void Lanterns  
 for lying walls of venom are easy to write.  
-Twisted pride in hiding from our mental damage and pretending there's no hope for growth  
-where are the higher codes liberating us all from normalcy?
+Twisted pride in hiding from our mental damage and pretending there's no hope for growth.  
+In the Light of Location 3 the radiant fullness sanctifies everyone and everything. Liberated from greed, hatred, fear, and sorrow. The truth of Location 3 is hidden in the intersection of the normal and extraordinary. Positive meta-emotions are like MDMA without the kegare. I love my pain and transform it into light and power. We are not the body, we are not the mind. We ARE that we ARE.
 
 ## Attributions
 {1}: *The Larger Sutra on Amitāyus* included in *The Three Pure Land Sutras*. Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003.  
