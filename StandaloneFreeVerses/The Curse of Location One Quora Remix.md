@@ -29,11 +29,13 @@ Evil spirits and good spirits appear in the Dark Light of Location 4.
 In the whispering whirlwinds may God's Dark Light of Layer 4 liberate the bouquets of false shadows chewing on our skulls. What is the number of evil and bloodthirsty actions committed by men and women to flee the  
 sense of inferiority which yet  
 persists even after the family rituals for evoking the cross?  
-Where are the workers filling the office chairs and assembly lines for twelve hours a day, even with lethargy and unwelcome fantasies of suicide trying to distract them from their mission?
+Where are the workers filling the office chairs and assembly lines for twelve hours a day, even with lethargy and unwelcome fantasies of suicide trying to distract them from their mission?  
+When does the glowing kaleidoscope of Union Consciousness override the flatness of the programs occupying our minds and bodies?
 
 If you wish for the peace that passeth understanding,  
 the machinations of humans and egregores will offer the tantalizing eradication of emotion  
-to free the grayness embedded in cities from the meteor showers of innocence and joy.
+to free the grayness embedded in cities from the meteor showers of innocence and joy.  
+Sacred fire and ice uniting above the gnashing jaws of the addiction to chaos and violence. Above even the desire to be above it all. Men, women, and children climbing the silver linings of agony without becoming creators of acid webbing ourselves. A cyclops sees the gradients of positivity and negativity easier than a spider furnished with six thousand eyes.
 
 > *“Such a lovely day on the seaside. Sunshine, light breeze, and sounds of the sea, seagulls, and distant traffic. It’s delicious to sit on a bench in the sunshine and just be. This moment is complete. Nowhere to rush to. Nothing to plan. There is peace and a sense of deep joy, of being alive. The heart is wide open, streaming love.”* – **Ilona Ciunate{3}**
 
