@@ -37,7 +37,7 @@ only the space where both dance.
 
 ***
 
-## III. The Divine Fullness (Layer 3)III. The Divine Fullness (Layer 3)
+## III. The Divine Fullness (Layer 3)
 The emptiness was a womb.  
 Now it sings.
 
@@ -56,7 +56,7 @@ like sugar in the rain.
 
 ***
 
-## IV. Existence Unfolding (Layer 4)IV. Existence Unfolding (Layer 4)
+## IV. Existence Unfolding (Layer 4)
 No more layers.  
 No more "I" to count them.
 
