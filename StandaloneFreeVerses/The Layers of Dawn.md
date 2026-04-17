@@ -30,7 +30,6 @@ Cities flicker like embers in a vast hearth.
 I am not the flame, nor the wind that stirs it—  
 only the space where both dance.
 
-"
 *“Where are you?”* asks the echo.  
 *“Nowhere,”* I answer.  
 *“Everywhere.”*
