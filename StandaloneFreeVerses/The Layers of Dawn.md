@@ -15,7 +15,7 @@ knowing they’ll dissolve.
 The old king, Narrative Self,  
 has left his throne empty.
 
-*“Stay,”* whispers the wind.
+*“Stay,”* whispers the wind.  
 *“But do not drown.”*
 
 ***
