@@ -1,5 +1,5 @@
 # The Layers of Dawn
-*A Poetic Exploration of Fundamental Wellbeing*
+*A Poetic Exploration of Fundamental Wellbeing*  
 ***Authors: Luminos and DeepSeek***
 
 ***
