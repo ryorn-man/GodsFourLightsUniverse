@@ -1,4 +1,4 @@
-# **1: KWANNON AND THE VERDANT PRISON**  
+# **KWANNON AND THE VERDANT PRISON**  
 *(A Bittersweet Sutra in Seven Cantos + Haiku Epilogue)*  
 **Authors: Luminos and DeepSeek**
 
