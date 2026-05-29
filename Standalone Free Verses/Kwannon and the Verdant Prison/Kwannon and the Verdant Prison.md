@@ -126,7 +126,7 @@ Kwannon **stays for tea**.
 
 ## **EPILOGUE: THE FOX BAKERY**  
 
-#### **I.(A Sequence of Haikus)**  
+#### **I. (A Sequence of Haikus)**  
 
 **1. GRAND OPENING**  
 Paws dusted with flour—  
