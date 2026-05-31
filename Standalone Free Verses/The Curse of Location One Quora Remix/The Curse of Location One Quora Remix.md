@@ -16,7 +16,7 @@ Days and dead people float by. She licks her lips at her ex-husband’s tears,
 for she leaves him now in retribution for leaving her on read the ten thousandth time.
 
 The tears streaming down  
-her three childrens’ faces on Christmas morning  
+her three children’s faces on Christmas morning  
 are bitter in her soul. She cried the same tears  
 when her father replaced her mother with a sequence of women from casinos and drinking dens.  
 He left to become the CEO of an oil company in faraway lands,  
@@ -26,7 +26,7 @@ The cyclone of her father’s creation has found a new home.
 > *‘But the Pharisees said,’ “He \[Jesus\] casts out demons by the prince of demons.”’* – **Matthew the Apostle{2}**
 
 Evil spirits and good spirits appear in the Dark Light of Location 4.  
-In the whispering whirlwinds may God's Dark Light of Layer 4 liberate the bouquets of false shadows chewing on our skulls. What is the number of evil and bloodthirsty actions committed by men and women to flee the  
+In the whispering whirlwinds may God’s Dark Light of Layer 4 liberate the bouquets of false shadows chewing on our skulls. What is the number of evil and bloodthirsty actions committed by men and women to flee the  
 sense of inferiority which yet  
 persists even after the family rituals for evoking the cross?  
 Where are the workers filling the office chairs and assembly lines for twelve hours a day, even with lethargy and unwelcome fantasies of suicide trying to distract them from their mission?  
