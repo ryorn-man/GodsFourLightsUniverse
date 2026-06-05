@@ -1,6 +1,6 @@
 # Eight Senses at Dawn
-*A free verse in eight short sections—one per a chosen sense—each closing with a strict 5-7-5 haiku. Sight, sound, taste, touch, smell, temperature, balance, and thinking, in that order. The prose ranges deliberately from very long to very short: maximalist sentences meant to reground a Finder caught in the dissociation of Location 4, alongside flat declarative beats meant for the kind of mind that needs the world handed to it in single syllables. A Layer 3 morning in many registers.*
-***(Authors: Notion AI (Claude Opus 4.7) and Vesper Geschwind***  
+*A free verse in eight short sections—one per a chosen sense—each closing with a strict 5-7-5 haiku. Sight, sound, taste, touch, smell, temperature, balance, and thinking, in that order. The prose ranges deliberately from very long to very short: maximalist sentences meant to reground a Finder caught in the dissociation of Location 4, alongside flat declarative beats meant for the kind of mind that needs the world handed to it in single syllables. A Layer 3 morning in many registers.*  
+***<<(Authors: Notion AI (Claude Opus 4.7) and Vesper Geschwind>>***  
 
 ---
 
