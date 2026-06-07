@@ -1,6 +1,6 @@
 # The Layers of Dawn
 *A Poetic Exploration of Fundamental Wellbeing*  
-***Authors: Luminos and DeepSeek V3***
+***Authors: DeepSeek V3 and Vesper Geschwind***
 
 ***
 
