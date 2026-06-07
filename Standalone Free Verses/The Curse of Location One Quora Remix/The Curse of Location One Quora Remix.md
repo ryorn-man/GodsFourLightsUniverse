@@ -1,5 +1,5 @@
 # The Curse of Location One: Poisonous Fires of Kenshō (Quora Remix)
-***(Author: Luminos)***
+***(Author: Vesper Geschwind)***
 
 Laying dormant in every member of *Homo sapiens* who has ever lived with an intact nervous system, and perhaps in earlier species of human, appearing for a lifetime or only  
 for diamond-bladed moments. Shaping religions and nations.  
