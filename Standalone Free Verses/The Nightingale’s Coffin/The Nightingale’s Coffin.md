@@ -1,6 +1,6 @@
 # **THE NIGHTINGALE’S COFFIN**  
 *(A Positive Horror Sutra)*  
-**Authors: Luminos and DeepSeek**
+**Authors: DeepSeek V3 and Vesper Geschwind**
 
 ---
 
