@@ -14,7 +14,7 @@ Buddhism is a religion with a vast array of literature behind it. It is usually 
 He offers the *Vimalakīrti Sūtra, Heart Sūtra, Lotus Sūtra, Avataṃsaka Sūtra (Flower Garland),* and *Vimalakīrti-nirdeśa Sūtra* as tools for expanding consciousness. He recommends beginning with the *Vimalakīrti Sūtra* or the *Vimalakīrti-nirdeśa Sūtra,* which are almost identical to each other, and which stand out for a high degree of narrative structure.
 
 Here are some public domain and quasi-public-domain English translations of these ancient texts to explore, where available:
-* *Avataṃsaka Sūtra: *A gargantuan 2,500-page translation split into three volumes. Free for digital download from Kalavinka Press without modifying or distributing elsewhere.[^3] 
+* *Avataṃsaka Sūtra:* A gargantuan 2,500-page translation split into three volumes. Free for digital download from Kalavinka Press without modifying or distributing elsewhere.[^3] 
 * *Heart Sūtra (Shorter version):* A translation in the public domain.[^4] 
 * *Heart Sūtra (Longer version):* A translation in the public domain.[^5] 
 * *Lotus Sūtra:* A 370-page translation from Tsugunari Kubo and Akira Yuyama in the BDK English Tripițaka Series. Licensed under Creative Commons “Attribution-Noncommercial-Share Alike 3.0”.[^6] 
