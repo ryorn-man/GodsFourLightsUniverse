@@ -4,7 +4,7 @@
 
 In Episode #44[^1] of *Deconstructing Yourself*, the guest, Michael Owens, discusses reading, chanting, and visualizing Mahayana Buddhist sūtras to generate states of meditative absorption. He even claims to have experienced minor to major psychedelic effects from reading the sūtras. He relays an off-hand claim from Paul Muller Ortega that only 1% of the Chinese Buddhist canon has been translated into English. Owens believes the sūtras are literally portals to alternate dimensions. During his agnostic days, he encountered a nun who told him reading the *Lotus Sutra* teleports her to the assembly on Mount Rajgriha where the eternal preaching of the *Lotus Sutra* unfolds. He acknowledges similar experiences himself. Whether or not the supernatural literally exists, or whether the Buddhist cosmologies are approaching the truth, this gargantuan collection of prose and poetry from Asia is a great tool for summoning the Fullness.
 
-Michael Owens offers many more lessons on the powers of Buddhist writings on his website, Lotus Underground[^2], and his SoundCloud page of the same name[^3].
+Michael Owens offers many more lessons on the powers of Buddhist writings on his website, *Lotus Underground*[^2], and his SoundCloud page of the same name[^3].
 
 Anecdotally, I have found reciting positive spiritual words in general among the most reliably powerful Layer 3 techniques I have ever encountered. *The Three Pure Land Sutras* from BDK English Tripițaka is one of my favorite works for recitation. It combines the main buddha-field sutras—*The Larger Sutra on Amitāyus, The Sutra on Contemplation of Amitāyus,* and *The Smaller Sutra on Amitāyus*—of Pure Land Buddhism into a single book. The PDF version is available free from the publisher’s website.
 
