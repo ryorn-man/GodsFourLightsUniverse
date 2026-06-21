@@ -8,7 +8,7 @@ Michael Owens offers many more lessons on the powers of Buddhist writings on his
 
 Anecdotally, I have found reciting positive spiritual words in general among the most reliably powerful Layer 3 techniques I have ever encountered. *The Three Pure Land Sutras* from BDK English Tripițaka is one of my favorite works for recitation. It combines the main buddha-field sutras—*The Larger Sutra on Amitāyus, The Sutra on Contemplation of Amitāyus,* and *The Smaller Sutra on Amitāyus*—of Pure Land Buddhism into a single book. The PDF version is available free from the publisher’s website.
 
-<img src="[https://github.com/ryorn-man/GodsFourLightsUniverse/blob/c08bf0a7b12dd08fbbb24c156d809a9152571471/God%E2%80%99s%20Cybernetic%20Images/Psychedelic-Library.png]" alt="Psychedelic Library" width="400px">  
+<img src="[https://github.com/ryorn-man/GodsFourLightsUniverse/blob/05325123e89d18e38750973edce1bd2bafed1699/God%E2%80%99s%20Cybernetic%20Images/Psychedelic-Library.png]" alt="Psychedelic Library" width="400px">  
 
 *Psychedelic Library*[^4]
 
