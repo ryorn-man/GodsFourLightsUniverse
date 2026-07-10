@@ -11,7 +11,7 @@ Hitler’s skull yellow and tight, Khamenei’s eyes
 hollow as emptied mosques, Saul of Tarsus’s mouth
 
 curled in the permanent sneer of a man who has  
-never once imagined losing. Its tail, a snail  
+never breathed true self-acceptance. Its tail, a snail  
 dragging silver slime, leaves a glistening trail  
 across the flagstones. The restless dead  
 rise in black rain—Jews, Poles, Roma, Soviet soldiers—  
