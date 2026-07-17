@@ -23,7 +23,7 @@ He left to become the CEO of an oil company in faraway lands,
 and now Beelzebub’s accusatory laughter echoes over her pride.  
 The cyclone of her father’s creation has found a new home.
 
-> *‘But the Pharisees said,’ “He \[Jesus\] casts out demons by the prince of demons.”’* – **Matthew the Apostle{2}**
+> *‘But the Pharisees said,’ “He \[Jesus\] casteth out devils through the prince of the devils.”’* – **Matthew the Apostle{2}**
 
 Evil spirits and good spirits appear in the Dark Light of Location 4.  
 In the whispering whirlwinds may God’s Dark Light of Layer 4 liberate the bouquets of false shadows chewing on our skulls. What is the number of evil and bloodthirsty actions committed by men and women to flee the  
@@ -50,8 +50,8 @@ Twisted pride in hiding from our mental damage and pretending there's no hope fo
 
 ## Attributions
 {1}: *The Larger Sutra on Amitāyus* included in *The Three Pure Land Sutras*. Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003.  
-{2}: *Matthew 9:34 (English Standard Version)*. Crossway. 2025. https://www.biblegateway.com/passage/?search=Matthew%209%3a34&version=ESV  
-{3}: *Liberation Unleashed* by Ilona Ciunate. Page 36. 2nd Edition. September 30, 2022.
+{2}: “Matthew 9:34” from *The Holy Bible – King James Version* (King James Bible Online, 2026). https://www.kingjamesbibleonline.org/Matthew-9-34/
+{3}: Ilona Ciunaite. Page 36 from *Liberation Unleashed: A Guide to Breaking Free from the Illusion of a Separate Self* (Ilona Ciunaite, September 27 2022).
 
 
 
