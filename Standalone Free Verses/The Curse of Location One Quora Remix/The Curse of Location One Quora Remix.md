@@ -8,7 +8,8 @@ St. John of the Cross traversing the howls of emptiness and ossified behavioral 
 so near yet so far, silent and alive through rafters coated in ectoplasm,  
 an inadvertent truth in the awful old saying, “toughen up,” if only anyone bothered to explain *how*.
 
-> *“The pain that they must undergo is indescribable. Since this law naturally obtains everywhere between heaven and earth, even if good or evil acts do not immediately bring about reward or retribution they will certainly result in them sooner or later. This I call the first great evil, the first suffering, and the first burning. Those afflictions are such that they are comparable to a huge fire burning people alive.”* – **Siddhartha Gautama{1}**
+**Siddhartha Gautama:**[^1]
+> *“The pain that they must undergo is indescribable. Since this law naturally obtains everywhere between heaven and earth, even if good or evil acts do not immediately bring about reward or retribution they will certainly result in them sooner or later. This I call the first great evil, the first suffering, and the first burning. Those afflictions are such that they are comparable to a huge fire burning people alive.”*
 
 Floating in the expanded ego state where thoughts and pains heal faster than before, she sees in the distance the velvet freedom of the void, where names disappear and nothing matters except the marvel of the Universe itself. Ever-so-slightly closer, yet even harder to grasp, there is the burning field of neutron stars radiating the terrible gravity of love and gratitude for everyone and everything;  
 mostly, though, everything and nothing is the same as before.  
@@ -23,7 +24,8 @@ He left to become the CEO of an oil company in faraway lands,
 and now Beelzebub’s accusatory laughter echoes over her pride.  
 The cyclone of her father’s creation has found a new home.
 
-> *‘But the Pharisees said,’ “He \[Jesus\] casteth out devils through the prince of the devils.”’* – **Matthew the Apostle{2}**
+**Matthew the Apostle:**[^2]
+> *‘But the Pharisees said,’ “He \[Jesus\] casteth out devils through the prince of the devils.”’*
 
 Evil spirits and good spirits appear in the Dark Light of Location 4.  
 In the whispering whirlwinds may God’s Dark Light of Layer 4 liberate the bouquets of false shadows chewing on our skulls. What is the number of evil and bloodthirsty actions committed by men and women to flee the  
@@ -37,21 +39,23 @@ the machinations of humans and egregores will offer the tantalizing eradication 
 to free the grayness embedded in cities from the meteor showers of innocence and joy.  
 Sacred fire and ice uniting above the gnashing jaws of the addiction to chaos and violence. Above even the desire to be above it all. Men, women, and children climbing the silver linings of agony without becoming creators of acid webbing ourselves. A cyclops sees the gradients of positivity and negativity easier than a spider furnished with six thousand eyes.
 
-> *“Such a lovely day on the seaside. Sunshine, light breeze, and sounds of the sea, seagulls, and distant traffic. It’s delicious to sit on a bench in the sunshine and just be. This moment is complete. Nowhere to rush to. Nothing to plan. There is peace and a sense of deep joy, of being alive. The heart is wide open, streaming love.”* – **Ilona Ciunate{3}**
+**Ilona Ciunate:**[^3]
+> *“Such a lovely day on the seaside. Sunshine, light breeze, and sounds of the sea, seagulls, and distant traffic. It’s delicious to sit on a bench in the sunshine and just be. This moment is complete. Nowhere to rush to. Nothing to plan. There is peace and a sense of deep joy, of being alive. The heart is wide open, streaming love.”*
+
 
 Even though the Great Spirit has gifted me with Geschwind syndrome,  
 still I cherish the blue flames of the Void Lanterns  
 for lying walls of venom are easy to write.  
-Twisted pride in hiding from our mental damage and pretending there's no hope for growth.
+Twisted pride in hiding from our mental damage and pretending there’s no hope for growth.
 
 ***
 
 *In the Light of Location 3 the radiant fullness sanctifies everyone and everything. Liberated from greed, hatred, fear, and sorrow. The truth of Location 3 is hidden in the intersection of the normal and extraordinary. Positive meta-emotions are the flames of the phoenix. I love my pain and transform it into light and power. We are not the body, we are not the mind. We ARE that we ARE.*
 
 ## Attributions
-{1}: Harold Stewart and Hisao Inagaki. “The Larger Sutra on Amitāyus” / Page 48 from *The Three Pure Land Sutras – Revised Second Edition, Third Printing* (BDK America, Inc., 2016). Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003. https://www.bdkamerica.org/product/the-three-pure-land-sutras/  
-{2}: “Matthew 9:34” from *The Holy Bible – King James Version* (King James Bible Online, 2026). https://www.kingjamesbibleonline.org/Matthew-9-34/  
-{3}: Ilona Ciunaite. Page 36 from *Liberation Unleashed: A Guide to Breaking Free from the Illusion of a Separate Self* (Ilona Ciunaite, September 27 2022). https://a.co/d/0fdoYm7M
+[^1]: Harold Stewart and Hisao Inagaki. “The Larger Sutra on Amitāyus” / Page 48 from *The Three Pure Land Sutras – Revised Second Edition, Third Printing* (BDK America, Inc., 2016). Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003. https://www.bdkamerica.org/product/the-three-pure-land-sutras/  
+[^2]: “Matthew 9:34” from *The Holy Bible – King James Version* (King James Bible Online, 2026). https://www.kingjamesbibleonline.org/Matthew-9-34/  
+[^3]: Ilona Ciunaite. Page 36 from *Liberation Unleashed: A Guide to Breaking Free from the Illusion of a Separate Self* (Ilona Ciunaite, September 27 2022). https://a.co/d/0fdoYm7M
 
 
 
