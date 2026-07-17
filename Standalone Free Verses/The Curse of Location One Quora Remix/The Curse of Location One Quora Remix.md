@@ -49,9 +49,10 @@ Twisted pride in hiding from our mental damage and pretending there's no hope fo
 *In the Light of Location 3 the radiant fullness sanctifies everyone and everything. Liberated from greed, hatred, fear, and sorrow. The truth of Location 3 is hidden in the intersection of the normal and extraordinary. Positive meta-emotions are the flames of the phoenix. I love my pain and transform it into light and power. We are not the body, we are not the mind. We ARE that we ARE.*
 
 ## Attributions
-{1}: *The Larger Sutra on Amitāyus* included in *The Three Pure Land Sutras*. Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003.  
-{2}: “Matthew 9:34” from *The Holy Bible – King James Version* (King James Bible Online, 2026). https://www.kingjamesbibleonline.org/Matthew-9-34/
-{3}: Ilona Ciunaite. Page 36 from *Liberation Unleashed: A Guide to Breaking Free from the Illusion of a Separate Self* (Ilona Ciunaite, September 27 2022).
+{1}: Harold Stewart and Hisao Inagaki. “The Larger Sutra on Amitāyus” / Page 48 from *The Three Pure Land Sutras – Revised Second Edition, Third Printing* (BDK America, Inc., 2016). Translated from Chinese by Hisao Inagaki and Harold Stewart. Page 48. 2nd Edition. BDK America, Inc. 2003. https://www.bdkamerica.org/product/the-three-pure-land-sutras/  
+{2}: “Matthew 9:34” from *The Holy Bible – King James Version* (King James Bible Online, 2026). https://www.kingjamesbibleonline.org/Matthew-9-34/  
+{3}: Ilona Ciunaite. Page 36 from *Liberation Unleashed: A Guide to Breaking Free from the Illusion of a Separate Self* (Ilona Ciunaite, September 27 2022). https://a.co/d/0fdoYm7M
+
 
 
 
