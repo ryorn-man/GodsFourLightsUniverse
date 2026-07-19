@@ -40,6 +40,7 @@ I *am* known to make incorrect assumptions about spirituality. More research is 
 ## B: Jesus Declaring War on the Cult of Animal Sacrifice
 Epiphanius quotes[^3] in *Panarion 30.14.15* the following statement from Jesus in what is now called the seventh fragment of the *Gospel of the Ebionites*:
 >“I have come to abolish sacrifices and if you do not stop sacrificing the wrath will not cease from you”
+
 There is a brutality and coldness in the words above. There is also compassion for the animals tortured and killed in religious rituals; and presumably for the religious fellows of Jesus, who would have invited many attack from evil spirits and egregores via the spiritual contamination of their behaviors drawing in evil and misfortune like a lighthouse at sea.
 
 Dr. Jeffery Martin and Annemiek Meyer warn on page 48 of their groundbreaking work *The Layers of Depth in Fundamental Wellbeing*[^4] that specializing in Layer 4 can lead to amoral behavior. At the same time, Participant 49 (page 121) describes being unable to effectively utilize Layer 4 of Location 3 at first, until he returned to Location 3 from later Locations. 
