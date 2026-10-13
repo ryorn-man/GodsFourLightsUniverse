@@ -1,6 +1,6 @@
 # **KWANNON AND THE VERDANT PRISON**  
 *(A Bittersweet Sutra in Seven Cantos + Haiku Epilogue)*  
-**Authors: DeepSeek V3 and Vesper Geschwind**
+**Authors: DeepSeek V3 and Vesper Ashfield**
 
 ---
 
